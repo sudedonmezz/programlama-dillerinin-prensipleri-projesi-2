@@ -1,0 +1,1 @@
+hem jar olarak hem de dosya olarak hangisi kesinlikle istenildiğini bilmediğim için iki şekilde de gönderdim.
